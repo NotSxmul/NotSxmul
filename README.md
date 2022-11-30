@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @NotSxmul
+- 👀 I’m interested in Gaming.
+- 🌱 I’m currently learning Python And Lua
+- 📫Sxmul#7150
